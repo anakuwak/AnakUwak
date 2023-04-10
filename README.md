@@ -1,1 +1,0 @@
-# ShaneAriel.github.io
